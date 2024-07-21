@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @J3STERRR
+- 👀 I’m interested in Game Development
+- 🌱 I’m currently learning More Of Unity And C#
+- 💞️ I’m looking to collaborate on Nothing Or Maybe
+- 📫 How to reach me X:OfficialJ3STER Discord:j3sterdev
+- 😄 Pronouns: Trans - She/Her
+- ⚡ Fun fact: Love Games and Making Them
